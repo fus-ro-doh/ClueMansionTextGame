@@ -1,4 +1,4 @@
-Author: Daniel William Jaeger, Jr. 
+Author: William Jaeger 
 
 
 Welcome to FOR LEGAL PURPOSES, THIS DEFNITELY ISN'T CLUE MIXED WITH SLENDER MAN. 
